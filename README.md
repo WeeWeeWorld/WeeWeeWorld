@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @WeeWeeWorld
+- 👀 I’m interested in spending time with your father
+- 🌱 I’m currently learning missionary 
+- 💞️ I’m looking to collaborate on nothing
+- 📫 Don't reach out to me 
+- ⚡ Fun fact: This is a joke account
